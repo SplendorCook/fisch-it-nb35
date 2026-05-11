@@ -1,4 +1,4 @@
-#  
+#  secret Scripts for fisch it offers the most advanced fisch it Script, with teleport and unlimited stamina. Perfect for dominating any match.
 
 
 
